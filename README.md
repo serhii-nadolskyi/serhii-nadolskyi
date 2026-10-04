@@ -12,4 +12,6 @@ A site that has to go live on a date? Or one that someone else built and left: u
 
 ## How to start
 
-Send me the link and what bothers you about the site. You'll hear back what can be done and how. The work is done by me, not passed on.
+1. Pick the contact in this profile that suits you best.
+2. Write me what the problem is.
+3. I look at it and write back what I think and what can be done. If it fits, we start.
