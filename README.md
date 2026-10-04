@@ -22,7 +22,7 @@ The work is done for clients, so the repositories stay private. The calendar bel
 
 Send me the link and what bothers you about the site. You'll hear back what can be done and how. You talk to me directly, and the work is done by me, not passed on.
 
-An hour of my work is 50 € in Europe and 50 $ elsewhere.
+An hour of my work is 50 €.
 
 - Cases and contact: [nadolskyi.com](https://nadolskyi.com)
 - [Upwork](https://www.upwork.com/freelancers/serhiinadolskyi)
